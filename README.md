@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ninto1
 - 👀 I’m interested in coding and gaming
 - 🌱 I’m currently learning at the HTBLA Kaindorf
-- 📫 How to reach me:  Discord: ninto1#8472
+- 📫 How to reach me:  Discord: ninto1#0420
