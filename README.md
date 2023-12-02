@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @ninto1
-- 👀 I’m interested in coding and gaming
-- 🌱 I’m currently learning at the HTBLA Kaindorf
-- 📫 How to reach me:  Discord: ninto1#0420
+- Hewwo thewe. I’m @ninto1
+- I like coding, cybersecurity and Tetris
+- I am from Austria
+- Sheep are fluffy
+- Don't expect high quality and/or effort from me. I just code when I feel like it.
