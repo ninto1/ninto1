@@ -6,5 +6,7 @@
 
 <img src="https://static.fsf.org/nosvn/associate/crm/6298086.png">
 
-How to contact me:
-Discord: ninto1
+How to contact me:  
+Discord: ninto1  
+Telegram: digitrun
+
