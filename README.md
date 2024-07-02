@@ -7,7 +7,3 @@
 <img src="https://static.fsf.org/nosvn/associate/crm/6298086.png">
 
 
-## If any social bunnies want to stay in contact:  
-Discord: ninto1  
-Telegram: digitrun
-
