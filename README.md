@@ -1,4 +1,4 @@
-- Hewwo thewe. I’m @ninto1
+- Hey there. I’m @ninto1
 - I like coding, cybersecurity and Tetris
 - I am from Austria
 - Sheep are fluffy
